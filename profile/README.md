@@ -11,7 +11,7 @@
 **♾️ 查看所有其他电影 ➲➲ [戏杀 電影完整版本|在線觀看 2024電影HD](https://playhdmovie.co/zh/movie/1176574)**
 
 《星愿2024》迅雷BT下载在线观看免费播放
-![Uploading image.png…]()
+![Uploading image.png…](https://miro.medium.com/v2/resize:fit:1400/1*_4E1-ljvfYDfDtl1Cj4S9w.jpeg)
 
 导演: 牛朝阳
 编剧: 牛朝阳
